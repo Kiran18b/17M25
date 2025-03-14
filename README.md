@@ -1,2 +1,1 @@
-BIRTHDAY WISHES 
-https://kiran18b.github.io/Birthday-wishes/
+https://kiran18b.github.io/17M25/
